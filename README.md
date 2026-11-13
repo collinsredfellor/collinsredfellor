@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Collins Redfellor
+# 👋 Hi, I'm Collins Musa
 
 ### 💻 Aspiring Software Developer | Builder | Future Startup Founder
 
